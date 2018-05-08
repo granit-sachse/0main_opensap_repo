@@ -18,3 +18,4 @@ header korrigiert
 
 
 jetzt aber ein Zweig - für spockie
+benjamin franklin quote
